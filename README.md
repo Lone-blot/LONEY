@@ -9,6 +9,9 @@ Favorite color ~ Black (idgaf if you say it's not a color)
 
 
 
+
+
+
 Meanings
 
 🟢 ~ Text me
