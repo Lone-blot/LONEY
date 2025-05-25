@@ -8,7 +8,7 @@ Favorite color ~ Black (idgaf if you say it's not a color)
 
 
 
-# CURRENTTIME ~ (GMT-03:30) Newfoundland
+# CURRENTTIME ~
 
 
 
