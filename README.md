@@ -1,5 +1,5 @@
-Name ~ Lone                          
-Nicknames ~ Loney, Xav, Xavvy.       
+Name ~ Ares                          
+Nicknames ~ Ares, Ari, Xav, Xavvy.       
 Pronouns ~ Any (Non-bi with a bit of a male lean)                      
 Age ~ ???                            
 Birthday ~ August 12th               
