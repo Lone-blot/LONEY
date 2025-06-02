@@ -6,9 +6,9 @@ Birthday ~ August 12th
 Sexuality ~ Pansexual                
 Favorite color ~ Black (idgaf if you say it's not a color)
 
+#fav songs atm
 
 
-# CURRENTTIME ~
 
 
 
