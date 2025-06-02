@@ -7,12 +7,19 @@ Sexuality ~ Pansexual
 Favorite color ~ Black (idgaf if you say it's not a color)
 
 **fav songs atm**
+
 *Call down the dragon*
+
 *Delusional*
+
 *I refuse*
+
 *Heavy lies the head*
+
 *Suffering*
+
 *Medusa's masquerade*
+
 
 
 
