@@ -29,7 +29,7 @@ Meanings
 
 🌙 ~ Only friends/important peeps
 
-⛔️ ~ Screw off unless you're bubba or Nova
+⛔️ ~ Screw off unless you're Nova
 
 ⚫️ ~ Not on at all
 
