@@ -29,7 +29,7 @@ Meanings
 
 🌙 ~ Only friends/important peeps
 
-⛔️ ~ Screw off unless you're Nova
+⛔️ ~ Screw off unless i tell you you're someone allowed to text me when i'm dnd, if not you will be ignored sorry!
 
 ⚫️ ~ Not on at all
 
@@ -77,5 +77,7 @@ Auditory Processing Disorder
 Language Processing Disorder
 
 Visual Perceptual/Visual Motor Deficit
+
+Alexithymia
 
 (ain't done but i ain't typing all of 'em)
