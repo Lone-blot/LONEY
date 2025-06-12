@@ -1,7 +1,7 @@
 Name ~ Ares                          
 Nicknames ~ Ares, Ari, Xav, Xavvy.       
-Pronouns ~ Any (Non-bi with a bit of a male lean)                      
-Age ~ ???                            
+Pronouns ~ Any
+                      
 Birthday ~ August 12th               
 Sexuality ~ Pansexual                
 Favorite color ~ Black (idgaf if you say it's not a color)
