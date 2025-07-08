@@ -3,7 +3,7 @@ Nicknames ~ Ares, Ari, Xav, Xavvy.
 Pronouns ~ Any
                       
 Birthday ~ August 12th               
-Sexuality ~ Pansexual                
+Sexuality ~ Pansexual and poly                
 Favorite color ~ Black (idgaf if you say it's not a color)
 
 **fav songs atm**
