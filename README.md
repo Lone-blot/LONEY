@@ -29,7 +29,7 @@ Meanings
 
 🌙 ~ Only friends/important peeps
 
-⛔️ ~ Screw off unless i tell you you're someone allowed to text me when i'm dnd, if not you will be ignored sorry!
+⛔️ ~ Screw off unless you're Nova, Kai, Angel, or Fruit Snack
 
 ⚫️ ~ Not on at all
 
