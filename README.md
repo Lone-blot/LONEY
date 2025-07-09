@@ -6,6 +6,10 @@ Birthday ~ August 12th
 Sexuality ~ Pansexual and poly                
 Favorite color ~ Black (idgaf if you say it's not a color)
 
+T/B/S ~ Bottom all the way
+
+RS ~ I'm taken by my love~
+
 **fav songs atm**
 
 *Call down the dragon*
