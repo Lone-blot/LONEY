@@ -3,12 +3,12 @@ Nicknames ~ Ares, Ari, Xav, Xavvy.
 Pronouns ~ Any
                       
 Birthday ~ August 12th               
-Sexuality ~ Pansexual and poly                
-Favorite color ~ Black (idgaf if you say it's not a color)
+Sexuality ~ Pansexual                 
+Favorite color ~ Black, Purple and Red
 
 T/B/S ~ Bottom all the way
 
-RS ~ I'm taken by my love~
+RS ~ I'm taken
 
 
 
