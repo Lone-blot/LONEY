@@ -10,20 +10,6 @@ T/B/S ~ Bottom all the way
 
 RS ~ I'm taken by my love~
 
-**fav songs atm**
-
-*Call down the dragon*
-
-*Delusional*
-
-*I refuse*
-
-*Heavy lies the head*
-
-*Suffering*
-
-*Medusa's masquerade*
-
 
 
 
@@ -36,6 +22,8 @@ Meanings
 ⛔️ ~ Screw off unless you're Nova, Kai, Angel, or Fruit Snack
 
 ⚫️ ~ Not on at all
+
+
 
 
 
