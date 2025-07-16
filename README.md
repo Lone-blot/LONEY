@@ -1,25 +1,39 @@
-Name ~ Ares                          
-Nicknames ~ Ares, Ari, Xav, Xavvy.       
-Pronouns ~ Any
-                      
-Birthday ~ August 12th               
-Sexuality ~ Pansexual                 
+Name ~ Ares/Echo
+
+Nicknames ~ Ares, Ari, Echo, Coco
+
+Pronouns ~ Any but i don't use she/her a lot
+
+Gender ~ non bi, bio fem tho
+
+Birthday ~ August 12th 2010
+
+Age ~ do the math yourself              
+
+Sexuality ~ Pansexual             
+
 Favorite color ~ Black, Purple and Red
 
 T/B/S ~ Bottom all the way
 
 RS ~ I'm taken
 
+Extra ~ i get flustered easily so keep that in mind pls! And i purr quite a bit for people i like (close friends, lover and whenever i'm in a comfy place)
+
+
+
+''He's who i love and nobody can change that,not in a billion years.'' - me
+
 
 
 
 Meanings
 
-🟢 ~ Text me
+🟢 ~ i don't use this one
 
-🌙 ~ Only friends/important peeps
+🌙 ~ lets talk!
 
-⛔️ ~ Screw off unless you're Nova, Kai, Angel, or Fruit Snack
+⛔️ ~ only replying to who i wanna
 
 ⚫️ ~ Not on at all
 
@@ -29,6 +43,7 @@ Meanings
 
 
 Shit wrong with me
+(you don't have to read these ofc)
 
 ADD - Attention deficit disorder
 
