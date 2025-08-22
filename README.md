@@ -49,6 +49,8 @@ ADD - Attention deficit disorder
 
 ADHD - Attention deficit hyperactivity disorder
 
+DID - idk how spell it ~ lost soul system
+
 BPD - Bipolar disorder
 
 OCD - Obsessive compulsive disorder
